@@ -18,9 +18,13 @@ MasterClass is an online learning platform that brings star power to education. 
 Redeeming a MasterClass coupon code is fast and easy. Here’s the rundown:
 
 **Find a Code:** Grab a valid one from a trusted source.
+
 **Visit MasterClass:** Pick your plan—Standard ($120/year), Plus ($180/year), or Premium ($240/year).
+
 **Hit Checkout:** Add your plan and head to payment.
+
 **Apply the Code:** Enter it in the “Promo Code” box and click “Apply.”
+
 **Finish Up:** Confirm your discounted price and start learning.
 
 ## Why Use a MasterClass Coupon Code?
@@ -30,9 +34,13 @@ Redeeming a MasterClass coupon code is fast and easy. Here’s the rundown:
 MasterClass coupon codes turn a premium experience into a steal. Here’s why they’re worth it:
 
 **Save Big:** Knock off up to 75% or $100 on subscriptions.
+
 **Test Drive:** Free trials let you explore before committing.
+
 **Gift Wisely:** Unlock buy one, get one deals for sharing.
+
 **Stretch Value:** More courses, less cash—simple as that.
+
 A code doesn’t just save money—it opens doors to inspiration.
 
 ## Types of MasterClass Coupon Codes Available
@@ -40,10 +48,15 @@ A code doesn’t just save money—it opens doors to inspiration.
 MasterClass coupon codes come in handy varieties for 2025. Here’s what to expect:
 
 **Percentage Discounts:** Save 10% to 75% on annual plans, especially during big sales.
+
 **Flat Rate Discounts:** Get a fixed cut, like $50 or $100 off.
+
 **Free Trials:** Try it all for 7 to 14 days, no charge.
+
 **Seasonal Promotions:** Score exclusive codes during Black Friday or New Year’s.
+
 **Referral Deals:** Friends can hook you up with trial or discount links.
+
 No student specials yet, but third party codes often fill the gap.
 
 ## Fixes for Fumbles:
@@ -52,11 +65,14 @@ Code expired? Dig up a new one.
 No change? Check plan compatibility.
 Mistyped? Copy and paste it.
 Maximize Your Savings with Seasonal Discounts
-Timing your MasterClass coupon code can mean bigger wins. Here’s the 2025 calendar:
+Timing your MasterClass coupon code can mean bigger wins. 
 
 **Black Friday & Cyber Monday (November):** Up to 75% off or buy one, get one free.
+
 **New Year’s (January):** 20% to 50% off for resolution season.
+
 **Summer Sales (June to July):** 15% to 40% off with new course drops.
+
 **Flash Sales:** Short lived but sweet—watch social media.
 Plan ahead—these deals don’t linger!
 
@@ -64,13 +80,28 @@ Plan ahead—these deals don’t linger!
 
 <img width="917" alt="image" src="https://github.com/user-attachments/assets/5c431ee9-52f5-4b25-88da-b724b11f0a0a" />
 
+## 📘 Masterclass Pricing Plans (2025)
+
+| Plan        | Price (Billed Annually) | Access                    | Devices        | Offline Viewing | Best For                   |
+|-------------|--------------------------|----------------------------|----------------|------------------|----------------------------|
+| **Standard** | $72/year ($6/month)      | 1 class every 3 months     | 1 device       | ❌               | Casual learners             |
+| **Plus**     | $180/year ($15/month)    | Unlimited classes          | 2 devices      | ✅               | Couples or frequent users  |
+| **Premium**  | $240/year ($20/month)    | Unlimited classes          | 6 devices      | ✅               | Families or small teams    |
+
+### ✅ All Plans Include:
+- Access to 200+ Masterclass courses
+- Stream on TV, mobile, or desktop
+- 30-day satisfaction guarantee
+
 
 ## Alternative Ways to Save on MasterClass
 
 No code handy? Try these savvy moves:
 
 **Share the Plan:** Split Plus or Premium with family or friends for multi device access.
+
 **Gift Card Bargains:** Buy discounted MasterClass gift cards during holiday sales.
+
 **Go Annual:** The yearly upfront fee beats monthly rivals hands down.
 Stack these with a coupon code, and you’re golden.
 
@@ -78,11 +109,15 @@ Stack these with a coupon code, and you’re golden.
 
 Is MasterClass worth your cash, even discounted? You bet. Here’s the scoop:
 
-Top Talent: Learn from legends like Neil Gaiman or Hans Zimmer.
-Cinematic Quality: Stunning visuals make lessons pop.
-All Access: One fee, every course—endless possibilities.
-Your Pace: Study anywhere with downloads and workbooks.
-Mindset Boost: It’s about growth, not grades.
+**Top Talent:** Learn from legends like Neil Gaiman or Hans Zimmer.
+
+**Cinematic Quality:** Stunning visuals make lessons pop.
+
+**All Access:** One fee, every course—endless possibilities.
+
+**Your Pace:** Study anywhere with downloads and workbooks.
+
+**Mindset Boost:** It’s about growth, not grades.
 No live Q&As or diplomas, but the inspiration is unmatched. A coupon code just seals the deal.
 
 ## Conclusion
