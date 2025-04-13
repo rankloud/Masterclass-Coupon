@@ -25,15 +25,15 @@ MasterClass is an online learning platform that brings star power to education. 
 ## How to Use MasterClass Coupon Codes
 Redeeming a MasterClass coupon code is fast and easy. Here’s the rundown:
 
-**Find a Code:** Grab a valid one from a trusted source.
++ **Find a Code:** Grab a valid one from a trusted source.
 
-**Visit MasterClass:** Pick your plan—Standard ($120/year), Plus ($180/year), or Premium ($240/year).
++ **Visit MasterClass:** Pick your plan—Standard ($120/year), Plus ($180/year), or Premium ($240/year).
 
-**Hit Checkout:** Add your plan and head to payment.
++ **Hit Checkout:** Add your plan and head to payment.
 
-**Apply the Code:** Enter it in the “Promo Code” box and click “Apply.”
++ **Apply the Code:** Enter it in the “Promo Code” box and click “Apply.”
 
-**Finish Up:** Confirm your discounted price and start learning.
++ **Finish Up:** Confirm your discounted price and start learning.
 
 ## Why Use a MasterClass Coupon Code?
 
@@ -41,13 +41,13 @@ Redeeming a MasterClass coupon code is fast and easy. Here’s the rundown:
 
 MasterClass coupon codes turn a premium experience into a steal. Here’s why they’re worth it:
 
-**Save Big:** Knock off up to 75% or $100 on subscriptions.
+- **Save Big:** Knock off up to 75% or $100 on subscriptions.
 
-**Test Drive:** Free trials let you explore before committing.
+- **Test Drive:** Free trials let you explore before committing.
 
-**Gift Wisely:** Unlock buy one, get one deals for sharing.
+- **Gift Wisely:** Unlock buy one, get one deals for sharing.
 
-**Stretch Value:** More courses, less cash—simple as that.
+- **Stretch Value:** More courses, less cash—simple as that.
 
 A code doesn’t just save money—it opens doors to inspiration.
 
@@ -55,15 +55,15 @@ A code doesn’t just save money—it opens doors to inspiration.
 
 MasterClass coupon codes come in handy varieties for 2025. Here’s what to expect:
 
-**Percentage Discounts:** Save 10% to 75% on annual plans, especially during big sales.
++ **Percentage Discounts:** Save 10% to 75% on annual plans, especially during big sales.
 
-**Flat Rate Discounts:** Get a fixed cut, like $50 or $100 off.
++ **Flat Rate Discounts:** Get a fixed cut, like $50 or $100 off.
 
-**Free Trials:** Try it all for 7 to 14 days, no charge.
++ **Free Trials:** Try it all for 7 to 14 days, no charge.
 
-**Seasonal Promotions:** Score exclusive codes during Black Friday or New Year’s.
++ **Seasonal Promotions:** Score exclusive codes during Black Friday or New Year’s.
 
-**Referral Deals:** Friends can hook you up with trial or discount links.
++ **Referral Deals:** Friends can hook you up with trial or discount links.
 
 No student specials yet, but third party codes often fill the gap.
 
